@@ -6,9 +6,7 @@
 
 💞 I’m looking to collaborate on software development projects, especially in desktop and web applications.
 
-📫 How to reach me | Email: douglasnicolas587@gmail.com
-                     Instagram: @dosnicolasdouglas
-                     Linkedin: https://www.linkedin.com/in/nicolas-douglas-b268a11b9?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
+📫 How to reach me | Email: douglasnicolas587@gmail.com , Instagram: @dosnicolasdouglas , Linkedin: https://www.linkedin.com/in/nicolas-douglas-b268a11b9?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
 
 😄 Pronouns: He/Him
 
